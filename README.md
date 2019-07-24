@@ -1,4 +1,11 @@
-<a href="http://prt.ruffood.com/jump/ruffood"><img src="http://prt.ruffood.com/svg/ruffood" /></a>
+# 早餐托管计划进行中
+
+## 参与方式
+
+- 搜索关注微信公众号「若饭」
+
+- 回复「早餐」即可参与
+
 
 
 # 建立本项目的几个出发点
